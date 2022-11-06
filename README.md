@@ -1,0 +1,1 @@
+# scammy.github.io
